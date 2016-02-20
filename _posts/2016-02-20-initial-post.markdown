@@ -20,4 +20,4 @@ perhaps some music also if I feel like it, now I must write this post or I'll ne
 
 Of course I am writing my first blog post as a conversation how would I othervise write it.
 
-Hope you have a good time here and a contiued good life!
+Hope you have a good time here and a continued good life!
