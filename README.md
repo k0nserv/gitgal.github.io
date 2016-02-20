@@ -1,1 +1,0 @@
-# gitgal.github.io
